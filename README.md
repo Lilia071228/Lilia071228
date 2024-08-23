@@ -7,5 +7,4 @@
 
 
 
-![](https://tenor.com/pt-BR/view/hello-kitty-gif-10103810692033205056)
-
+![](https://tenor.com/pt-BR/view/hello-kitty-gif-25333935)
