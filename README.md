@@ -4,5 +4,6 @@
 - 🍪🥛 vou postar meus projetos aqui
 - 🩷 Pronomes:ela/dela
 
-![](![image](https://github.com/user-attachments/assets/ca0b9aa2-eb86-4645-a442-8e928ad3933a)
+![](https://github.com/user-attachments/assets/e6bf8eb6-c4ed-4952-b0d3-633e776e2e17)
+
 
