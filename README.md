@@ -4,4 +4,5 @@
 - 🍪🥛 vou postar meus projetos aqui
 - 🩷 Pronomes:ela/dela
 
-![](https://tenor.com/pt-BR/view/broncos-hello-kitty-love-gif-19466274
+![](![image](https://github.com/user-attachments/assets/f8a06808-13be-4620-a68e-e597a9447597)
+) 
