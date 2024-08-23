@@ -5,6 +5,9 @@
 - 🩷 Pronomes:ela/dela
 
 
+## Entre em contato comigo
+juliaywk666@gmail.com
 
 
-![](https://tenor.com/pt-BR/view/hello-kitty-gif-25333935)
+
+![](https://tenor.com/pt-BR/view/gato-celeste-gif-27617022)
